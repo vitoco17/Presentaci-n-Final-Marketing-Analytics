@@ -1,2 +1,2 @@
 # Presentaci-n-Final-Marketing-Analytics
-La mejor presentacion del mundo
+Josefina Rodríguez, Victor Macchiavello, Matias Arteaga.
